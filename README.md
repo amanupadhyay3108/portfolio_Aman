@@ -5,4 +5,4 @@ Feel free to explore and connect with me!
 
 🔗 [Live Site]([https://your-portfolio-url.com](https://portfolio-aman-five.vercel.app/))
 
-📬 Contact: youremail@example.com
+📬 Contact: amanupadhyay3108@gmail.com
